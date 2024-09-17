@@ -1,4 +1,4 @@
-# Psykoterapi Avslöjad: Vägen till Mental Hälsa
+# Psykoterapi: Vägen till Mental Hälsa
 
 ## 1. Kan Psykoterapi Vara Din Vändpunkt?
 
